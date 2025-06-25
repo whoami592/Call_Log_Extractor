@@ -36,8 +36,11 @@ Note: This script is for educational purposes only. Ensure you have proper autho
 
 
 
-![WhatsApp Image 2025-06-19 at 9 15 28 PM](https://github.com/user-attachments/assets/f634d96a-22ff-4477-889b-853a9987c5ec)
 
 📧 Email:   Sabazali236@gmail.com
 🌐 GitHub:  [github.com/whoami592](https://github.com/whoami592)
 🚀 Mobile No: +923409777222
+
+![WhatsApp Image 2025-06-19 at 9 15 28 PM](https://github.com/user-attachments/assets/f634d96a-22ff-4477-889b-853a9987c5ec)
+
+
