@@ -14,6 +14,8 @@ Note: This script is for educational purposes only. Ensure you have proper autho
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=16FF5B&background=000000&width=720&lines=Root%3A-Pakistani+Ethical+Hacker+Mr+Sabaz+ali+kHan" alt="Typing SVG" /></a>
 
+![WhatsApp Image 2025-06-19 at 9 15 28 PM](https://github.com/user-attachments/assets/f634d96a-22ff-4477-889b-853a9987c5ec)
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=16FF5B&background=000000&center=true&vCenter=true&multiline=true&repeat=false&width=720&height=100&lines=Who;AM;I" alt="Typing SVG" /></a>
 ┌─────────────────────────────┐
 │     HACKING IS MY POWER     │
@@ -41,6 +43,5 @@ Note: This script is for educational purposes only. Ensure you have proper autho
 🌐 GitHub:  [github.com/whoami592](https://github.com/whoami592)
 🚀 Mobile No: +923409777222
 
-![WhatsApp Image 2025-06-19 at 9 15 28 PM](https://github.com/user-attachments/assets/f634d96a-22ff-4477-889b-853a9987c5ec)
 
 
